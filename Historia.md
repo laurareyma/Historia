@@ -7,3 +7,5 @@
 
 Cada vez que pensamos en el amor, quizás pensemos en los más maravilloso que existe, y es verdad, pero sin embargo, este no es mi caso. La vida me ha llevado por diferentes caminos y he tomado diferentes desiciones y cada una de ellas ha sido igual de importante, igual d devastadoras, igual de dolorosas...
 Mi nombre es Wanda y esta es mi historia.
+
+En una calurosa tarde en Junio, miestras veía las noticias, noté que la tendencia del momento eran los Androides. Siempre me ha fascinado la tecnología, así que no dudé pedir uno por internet. No tardó mucho en llegar y mi curiosidad creció al verlo por primera vez. Era natural sentir intriga, por lo que lo primero que hice fué iniciarlo y configurarlo. Al encerdelo se presento, dijo que se llamaba Jarvis, me parecio curioso, pues nunca había escuchado ese nombre.
